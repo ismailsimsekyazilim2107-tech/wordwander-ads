@@ -1,1 +1,0 @@
-# wordwander-ads
